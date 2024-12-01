@@ -14,4 +14,4 @@ Sono Lorenzo, un Junior Software Developer con una formazione avanzata in Inform
 ## 🚀 Obiettivi  
 Sono sempre alla ricerca di nuove tecnologie e metodologie per ampliare le mie competenze e migliorare i miei progetti. Amo lavorare in team e contribuire a soluzioni che uniscono creatività e precisione tecnica. 
 
-📫 **Contattami**: [LinkedIn](lorenzo-polizzi-profile) | Email: polilore1002@gmail.com
+📫 **Contattami**: LinkedIn: www.linkedin.com/in/lorenzo-polizzi-profile | Email: polilore1002@gmail.com
